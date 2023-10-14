@@ -1,3 +1,4 @@
+![logo](https://github.com/spjoyce1992/spjoyce1992/blob/main/Blue%20Modern%20Company%20Slogan%20LinkedIn%20Banner.png)
 <h1 align="center">Hi 👋, I'm Joyce sp</h1>
 <h3 align="center">A Passionate Data Analyst</h3>
 
