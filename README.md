@@ -14,7 +14,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/spjoyce1992](https://github.com/spjoyce1992)
 
-- 📝 I regularly write articles on [Linkedin](Linkedin)
+- 📝 I regularly write articles on [Linkedin](https://www.linkedin.com/in/joyce-sp/)
 
 - 📫 How to reach me **sp.joyce@outlook.com**
 
