@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **sp.joyce@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1a3U5qapFRgMd-Yj5HpPB-bBez9ZcqEMs/view?usp=sharing](https://drive.google.com/file/d/1a3U5qapFRgMd-Yj5HpPB-bBez9ZcqEMs/view?usp=sharing)
+- 📄 Know about my experiences [Google Drive]([https://drive.google.com/file/d/1a3U5qapFRgMd-Yj5HpPB-bBez9ZcqEMs/view?usp=sharing](https://drive.google.com/file/d/1-8JppZgy9HAFrXsLIKYgyhLO3VpEL4xy/view?usp=sharing))
 
 - ⚡ Fun fact **I like dark humor**
 
